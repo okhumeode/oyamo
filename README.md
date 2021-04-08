@@ -1,0 +1,2 @@
+# oyamo
+Ayogwiri
